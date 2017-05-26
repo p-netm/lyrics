@@ -5,5 +5,5 @@
  along to my favourite music. bugs go like: Why are you so happy after all we've tormented you? 
  
 ## List
- * [malaika] (https://www.youtube.com/watch?v=CaQKtZQCLBY) by Nyashinki  (Kenyan)
+ * [malaika](https://www.youtube.com/watch?v=CaQKtZQCLBY) by Nyashinki  (Kenyan)
  * [issues](https://www.youtube.com/watch?v=biNFM2up81c)  by julia Michaels (+)
