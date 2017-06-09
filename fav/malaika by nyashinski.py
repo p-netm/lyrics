@@ -11,7 +11,7 @@ And I feel you in my air when I breath
 I see you in my dreams when I sleep
 You are the one I have been waiting for all my life
 Deep down my heart I believe nakufeel unanifeel hii ni real
-The one I have been waiting for my life
+The one I have been waiting for all my life
 
 {Chorus}
 Uko sawa na wote malaika na mabawa yao
